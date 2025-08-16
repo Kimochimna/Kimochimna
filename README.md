@@ -1,4 +1,4 @@
-- 👋 Hello~! I’m Kimochimna
+- 👋 hello~! I’m kannamina
 - 💞️ ...
 
 <!---
